@@ -32,4 +32,4 @@ Estudante em ?
   </a>
 </div>
 
-### Obrigado por visitar! 
+### Obrigado por visitar! ☕
