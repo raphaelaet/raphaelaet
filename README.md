@@ -1,5 +1,5 @@
 ### 👉 Raphael Laet 👈
-Estudante em ?
+Cursando Tecnologia da Informação na UFRN
 - 👨‍💻 Técnico em **Informática** pelo IFRN
 - 🍃 Entusiasta de jogos online, geografia e rap
 - 🧠 Conhecimento em:
